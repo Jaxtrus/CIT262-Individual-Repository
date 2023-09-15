@@ -1,1 +1,1 @@
-# CIT262-Individual-Repository
+Hello everyone! I enjoy shooting and trying to better myself in anyway I can on a daily basis. 
